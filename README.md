@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 About Me
 🤝 I’m looking for opportunities to put my skills to use in a productive environment<br><br>🌱 I’m currently learning about the unconventional implementations of cloud computing<br><br>💬 Ask me about why I chose coding as a career<br><br>⚡ Fun fact - I can name all the countries of the world in under 10 minutes
 
 
